@@ -9,4 +9,5 @@
 
 - [Пример оформления презентаций](https://drive.google.com/open?id=12Vm813jVMxHpoBOxjSlxyrDgQuhODsju)
 - [Сертификаты по прохождению курсов](https://drive.google.com/drive/folders/1c3UrmdUGMMRQPB8-BFj6h79sLZu9dsNd?usp=sharing)
+- [Более подробная информация обо мне](http://aboutshu.tilda.ws/)
  
