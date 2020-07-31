@@ -20,5 +20,5 @@
 - [Более подробная информация обо мне](http://aboutshu.tilda.ws/)
 
 
-[github](https://github.com/jesusabdullah/uafthesis/issues), twitter (http://twitter.com/jesusabdullah) or [email](email:josh.holbrook@gmail.com).
+[telegram](https://t.me/aaaaaaaaaaashu), [email](email:shushurinaa@gmail.com).
  
