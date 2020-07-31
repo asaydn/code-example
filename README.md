@@ -20,5 +20,5 @@
 - [Более подробная информация обо мне](http://aboutshu.tilda.ws/)
 
 
-[telegram](https://t.me/aaaaaaaaaaashu), [email](email:shushurinaa@gmail.com).
+[telegram](https://t.me/aaaaaaaaaaashu), [email](mailto:shushurinaa@gmail.com).
  
